@@ -136,6 +136,6 @@ There are many opportunities to make money online in South Africa. Whether you'r
 
 **Disclaimer**：This article is for informational purposes only and does not constitute legal, tax or investment advice.
 <nav>
-  <a href="#Freelancing">Freelancing</a>
-  <a href="#Dropshipping">Dropshipping</a>
+  <a href="#3-freelancing">3-freelancing</a>
+  <a href="#4-dropshippingdropshipping">4-dropshippingdropshipping</a>
 </nav>
