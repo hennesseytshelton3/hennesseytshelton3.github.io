@@ -135,3 +135,15 @@ Companies are always looking for people who represent their brand. As a brand am
 There are many opportunities to make money online in South Africa. Whether you're looking to increase your income, build a full-time online career, or explore new ways to make money, the opportunities are endless with the right strategy. Patience and persistence are key, stay on top of the latest digital trends.
 
 **Disclaimer**：This article is for informational purposes only and does not constitute legal, tax or investment advice.
+## 📖 目录
+1. [Take online surveys](#Take online surveys)
+   - [Offer online courses and tutoring](#Offer online courses and tutoring)
+   - [Freelancing](#Freelancing)
+   - [Dropshipping](#Dropshipping)
+   - [直销（Dropshipping）](#直销dropshipping)
+   - [投资股票](#投资股票)
+   - [社交媒体影响力](#社交媒体影响力)
+   - [博客](#博客)
+   - [联盟营销](#联盟营销)
+2. [在线赚钱技巧](#在线赚钱技巧)
+3. [常见问题解答](#常见问题解答)
